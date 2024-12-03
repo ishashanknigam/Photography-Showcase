@@ -1,4 +1,4 @@
-# 𝐄𝐲𝐞𝐰𝐞𝐚𝐫 𝐓𝐫𝐞𝐧𝐝𝐥𝐢𝐧𝐞
+# Photography Showcase 
 
 Designed to beautifully display photography and films with a focus on visual storytelling.
 
